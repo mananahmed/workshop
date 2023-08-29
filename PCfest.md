@@ -46,9 +46,10 @@ With *The Politics of the Governed: Reflections on Popular Politics in Most of t
 - Suren Pillay
 - Gyan Prakash
 - Mrinalini Sinha
+- Gayatri C. Spivak
 - Anand Vivek Taneja
 - Gauri Vishwanathan
-- to be continued
+
 
 ## Funding & Support
 - [Institute for Social and Economic Research and Policy](https://www.iserp.columbia.edu/)
