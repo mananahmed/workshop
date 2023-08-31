@@ -34,17 +34,25 @@ With *The Politics of the Governed: Reflections on Popular Politics in Most of t
 ## Participants
 
 - Gianpaolo Baiocci
+- Moinak Biswas
 - Dipesh Chakrabarty
 - Ruchi Chaturvedi
 - Divya Cherian
-- Ayca Çubukçu
+- Ayça Çubukçu
 - Sandipto Dasgupta
+- Souleymane Bachir Diagne
 - Rohit De
 - Abhishek Kaicker
 - Sudipta Kaviraj
+- Mana Kia
 - Mahmood Mamdani
+- Nivedita Menon
+- Shayoni Mitra
+- Debashree Mukherjee
+- Suman Mukhopadhyay
 - Suren Pillay
 - Gyan Prakash
+- Anupama Rao
 - Mrinalini Sinha
 - Gayatri C. Spivak
 - Anand Vivek Taneja
