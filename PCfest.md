@@ -54,7 +54,7 @@ With *The Politics of the Governed: Reflections on Popular Politics in Most of t
 - Gyan Prakash
 - Anupama Rao
 - Mrinalini Sinha
-- Gayatri C. Spivak
+- Gayatri Chakravorty Spivak
 - Anand Vivek Taneja
 - Gauri Vishwanathan
 
