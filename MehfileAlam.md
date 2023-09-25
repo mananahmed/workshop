@@ -2,7 +2,7 @@
 ## April 26th & 27th, 2024
 ## Yale University
 
-| ![MA](images/pcfest.jpg) |
+| ![MA](images/MehfileAlam.jpg) |
 |:--:|
 | *Save the Date* |
 
@@ -42,19 +42,13 @@ This event is a celebration of Muzaffar Alam’s legacy as a scholar and mentor.
 
 ## Format
 
-The first day of the conference, we have asked four panels with set of scholars will offer a 15 min comment linking their work with Chatterjee, or on an aspect of his critical interventions. The panels will be followed by an ‘open mic’ reception.
-
-The second day will begin with a keynote by Professor Chatterjee, followed by an extended roundtable.
-
-
 ## Venue
-[Buell Hall, Columbia](https://www.iserp.columbia.edu/sites/default/files/Directions%20to%20Buell%20Hall.pdf)
 
 ## Lodgings
-[A Loft Harlem](https://www.marriott.com/en-us/hotels/nyclh-aloft-harlem/overview/)
+
 
 ## Dinner
-Le Monde, Saturday night (for panelists only)
+
 
 ## Visa & Reimbursements
 We are happy to provide a letter if you need a visa to travel for the conference. We are happy to reimburse your air or train transportation to the workshop. We will sponsor five nights stay for participants coming from outside US and three night stay for those joining us from within US. Please find below instructions for reimbursements:
@@ -67,7 +61,7 @@ We are happy to provide a letter if you need a visa to travel for the conference
   * [W-8BEN](https://www.irs.gov/pub/irs-pdf/fw8ben.pdf)
 
 ## Contact
-* [Manan Ahmed](mailto:ma3179@columbia.edu) for all matters.
+* [Manan Ahmed](mailto:ma3179@columbia.edu) or [Jane Mikkelson](jane.mikkelson@yale.edu) for all matters.
 
 ## Event Photos
 
