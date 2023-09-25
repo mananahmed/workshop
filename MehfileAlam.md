@@ -19,7 +19,7 @@
 - Jane Mikkelson
 
 ## About
-We will gather on April 26-27 at Yale for an enriching conversation that brings together scholars of literature, history, religion, culture, and politics in Hindustan ca.1000-2000CE, a millennium marked by multiple major epistemic and political shifts. Much of the recent work on this period has been informed directly (and indirectly) by the scholarship of Muzaffar Alam, George V. Bobrinskoy Professor of South Asian Languages and Civilizations at University of Chicago.
+We will gather on April 26-27 2024 at Yale for an enriching conversation that brings together scholars of literature, history, religion, culture, and politics in Hindustan ca.1000-2000CE, a millennium marked by multiple major epistemic and political shifts. Much of the recent work on this period has been informed directly (and indirectly) by the scholarship of Muzaffar Alam, George V. Bobrinskoy Professor of South Asian Languages and Civilizations at University of Chicago.
 
 His major monographs--*The Crisis of Empire in Mughal North India* (1986), *The Languages of Political Islam in India: c.1200-1800* (2004), *The Mughals and the Sufis: Islam and Political Imagination in India, 1500–1750* (2021)--offer nuanced critical examinations of political and imperial formation, language and culture, community and belonging, and the making of publics. These major studies have shaped decisive conclusions on the vexed question of the eighteenth century Hindustan and the relationship between religion and political power for the Mughals.
 
@@ -33,7 +33,7 @@ This event is a celebration of Muzaffar Alam’s legacy as a scholar and mentor.
 ## Participants
 
 - Ananya Chakravarti
-- Whitney Cox 
+- Whitney Cox
 - Sabrina Datoo
 - Subah Dayal
 - Purnima Dhavan
