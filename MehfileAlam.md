@@ -32,12 +32,34 @@ This event is a celebration of Muzaffar Alam’s legacy as a scholar and mentor.
 
 ## Participants
 
--
+- Ananya Chakravarti
+- Whitney Cox 
+- Sabrina Datoo
+- Subah Dayal
+- Purnima Dhavan
+- Supriya Gandhi
+- Sonam Kachru
+- Abhishek Kaicker
+- Shariq Khan
+- Rajeev Kinra
+- Hajnalka Kovacs
+- Anubhuti Maurya
+- Jane Mikkelson
+- Daniel Morgan
+- Ayesha Ramachandran
+- Sunil Sharma
+- Hasan Siddiqui
+
+### Keynotes
+
+- Muzaffar Alam
+- Sanjay Subrahmanyam
 
 ## Funding & Support
 
-- [Department of History](http://history.columbia.edu)
-
+- [The Whitney and Betty MacMillan Center for International and Area Studies](https://macmillan.yale.edu/) at Yale University
+- [Early Modern Studies](https://earlymodern.yale.edu/) at Yale
+- [Department of History](http://history.columbia.edu) at Columbia
 
 
 ## Format
@@ -45,7 +67,6 @@ This event is a celebration of Muzaffar Alam’s legacy as a scholar and mentor.
 ## Venue
 
 ## Lodgings
-
 
 ## Dinner
 
